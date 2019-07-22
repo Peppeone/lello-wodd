@@ -1,2 +1,6 @@
 # lello-wodd
-Lello
+L
+e
+l
+l
+o
